@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on ML Projects<br>👯 I’m looking to collaborate on same<br>🤝 I’m looking for help with my Portfolio Website<br>🌱 I’m currently learning NEURAL NETWORKING<br>💬 Ask me about<br>⚡ Fun fact:-<br>Love Sports<br>ADHD<br>NERD<br>YOUR'S<br>Ammm...Nvm<br>
+🔭 I’m currently working on ML Projects<br>👯 I’m looking to collaborate on same<br>🤝 I’m looking for help with my Portfolio Website<br>🌱 I’m currently learning NEURAL NETWORKING<br>⚡ nerdy fact:-<br>Love Sports<br>ADHD<br>NERD<br>YOUR'S<br>Ammm...Nvm<br>
 
 
 ## 🌐 Socials:
